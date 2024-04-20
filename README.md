@@ -1,1 +1,0 @@
-# SIV895-Special-Module-on-Intelligent-Info-Processing
